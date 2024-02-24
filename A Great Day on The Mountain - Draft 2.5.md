@@ -4,7 +4,8 @@
 
 Skiing is beautiful. Pure snow covers the mountain slopes. Colossal spires of rock on every side hem the blue sky into its high vaulted dome. Dark green evergreens dot the white mountainside. Glades of lean, pale birch trees stand elegantly lit by the sun and its reflection in the snow, and sheer gray cliffs jut out their aged faces to peer down on the homely ski villages below. 
 
-Even if one were to disregard the stunning scenery, the skiing experience is still breathtaking. The thrill of speed, the elegance of proper form, and the suspense of adventure make the skiing season a time to remember. But when skiing season ends and you return home, what have you gained? 
+Even if one were to disregard the stunning scenery, the skiing experience is still breathtaking. The thrill of speed, the elegance of proper form, and the suspense of adventure make the skiing season a time to remember. But when skiing season ends and you return home, what have you gained? The beautiful scenery soon fades in our memory. The fun experience never satisfies.
+
 The rewards of a great skiing trip could last a lifetime.
 The only things that last
 Beautiful scenery and fun activities are **blessings**, but the best **parts** of a great day on the mountain are the relationships you built, the memories you made, and the adventures you had.
