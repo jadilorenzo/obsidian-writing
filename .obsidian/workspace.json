@@ -4,18 +4,18 @@
     "type": "split",
     "children": [
       {
-        "id": "456a6d5b606edd64",
+        "id": "0567f257e912a44b",
         "type": "tabs",
         "children": [
           {
-            "id": "12d8e50d7b7d565e",
+            "id": "758f57826d8ee1b8",
             "type": "leaf",
             "state": {
-              "type": "diff-view",
+              "type": "markdown",
               "state": {
                 "file": "A Great Day on The Mountain - Draft 2.5.md",
-                "staged": false,
-                "hash": "9af817a15e57c0a132eafbd24ff138ae741db629"
+                "mode": "source",
+                "source": false
               }
             }
           }
@@ -69,8 +69,7 @@
       }
     ],
     "direction": "horizontal",
-    "width": 300,
-    "collapsed": true
+    "width": 300
   },
   "right": {
     "id": "236236dadede408a",
@@ -86,6 +85,7 @@
             "state": {
               "type": "backlink",
               "state": {
+                "file": "A Great Day on The Mountain - Draft 2.5.md",
                 "collapseAll": false,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -102,6 +102,7 @@
             "state": {
               "type": "outgoing-link",
               "state": {
+                "file": "A Great Day on The Mountain - Draft 2.5.md",
                 "linksCollapsed": false,
                 "unlinkedCollapsed": true
               }
@@ -123,7 +124,9 @@
             "type": "leaf",
             "state": {
               "type": "outline",
-              "state": {}
+              "state": {
+                "file": "A Great Day on The Mountain - Draft 2.5.md"
+              }
             }
           },
           {
@@ -143,7 +146,7 @@
             }
           }
         ],
-        "currentTab": 4
+        "currentTab": 5
       }
     ],
     "direction": "horizontal",
@@ -159,9 +162,10 @@
       "templates:Insert template": true
     }
   },
-  "active": "12d8e50d7b7d565e",
+  "active": "758f57826d8ee1b8",
   "lastOpenFiles": [
     "A Great Day on The Mountain - Draft 2.5.md",
+    "2024-02-24.md",
     "Untitled.canvas",
     "Welcome.md"
   ]
