@@ -13,7 +13,7 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "A Great Day on The Mountain.md",
+                "file": "A Great Day on The Mountain - Draft 2.5.md",
                 "mode": "source",
                 "source": false
               }
@@ -86,7 +86,7 @@
             "state": {
               "type": "backlink",
               "state": {
-                "file": "A Great Day on The Mountain.md",
+                "file": "A Great Day on The Mountain - Draft 2.5.md",
                 "collapseAll": false,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -103,7 +103,7 @@
             "state": {
               "type": "outgoing-link",
               "state": {
-                "file": "A Great Day on The Mountain.md",
+                "file": "A Great Day on The Mountain - Draft 2.5.md",
                 "linksCollapsed": false,
                 "unlinkedCollapsed": true
               }
@@ -126,7 +126,7 @@
             "state": {
               "type": "outline",
               "state": {
-                "file": "A Great Day on The Mountain.md"
+                "file": "A Great Day on The Mountain - Draft 2.5.md"
               }
             }
           },
@@ -156,17 +156,18 @@
   },
   "left-ribbon": {
     "hiddenItems": {
+      "daily-notes:Open today's daily note": false,
       "switcher:Open quick switcher": false,
       "graph:Open graph view": false,
-      "canvas:Create new canvas": false,
-      "daily-notes:Open today's daily note": false,
-      "templates:Insert template": false,
-      "command-palette:Open command palette": false
+      "command-palette:Open command palette": false,
+      "canvas:Create new canvas": true,
+      "templates:Insert template": true
     }
   },
   "active": "12d8e50d7b7d565e",
   "lastOpenFiles": [
-    "Welcome.md",
-    "A Great Day on The Mountain.md"
+    "Untitled.canvas",
+    "A Great Day on The Mountain - Draft 2.5.md",
+    "Welcome.md"
   ]
 }

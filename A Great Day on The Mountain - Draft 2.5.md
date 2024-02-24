@@ -1,10 +1,8 @@
-### Draft 2.5
-
-**TODO:** incorporate phone calls in the section about skiing with family
 
 
+- [ ] **TODO:** incorporate phone calls in the section about skiing with family
 
-Skiing is beautiful. Pure snow covers the mountain slopes. Colossal spires of rock on every side hem the blue sky into its high, vaulted dome. Dark evergreens dot the white mountainsides, and sheer gray cliffs jut out irregularly. Glades of lean, pale birch trees stand elegantly lit by the sun and its reflection in the snow. 
+Skiing is beautiful. Pure snow covers the mountain slopes. Colossal spires of rock on every side hem the blue sky into its high vaulted dome. Dark green evergreens dot the white mountainside. Glades of lean, pale birch trees stand elegantly lit by the sun and its reflection in the snow. Sheer gray cliffs jut out their aged faces to peer down on the homely ski villages below. 
 
 But skiing is also fun. The thrill of speed, the elegance of proper form, and the suspense of adventure make skiing a great sport. But when the skiing ends and you return home, what have you gained? Beautiful scenery and fun activities are **blessings**, but the best **parts** of a great day on the mountain are the relationships you built, the memories you made, and the adventures you had.
 
