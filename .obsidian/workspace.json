@@ -151,7 +151,8 @@
       }
     ],
     "direction": "horizontal",
-    "width": 300
+    "width": 300,
+    "collapsed": true
   },
   "left-ribbon": {
     "hiddenItems": {
@@ -163,7 +164,7 @@
       "templates:Insert template": true
     }
   },
-  "active": "39471624f795b0f3",
+  "active": "12d8e50d7b7d565e",
   "lastOpenFiles": [
     "Untitled.canvas",
     "A Great Day on The Mountain - Draft 2.5.md",
