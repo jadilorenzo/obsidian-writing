@@ -13,8 +13,8 @@ Embark on unforgettable adventures with others.
 Matthew and I once found a path that led straight into thick, dark woods. Instead of fearing the unknown, we plunged in and discovered our favorite run of the day. 
 Even painful experiences can be turned into adventures. 
 
-On one occasion, my younger brother and I were tasked with choosing which run to take down an unknown part of the mountain. We carefully started down the main trail, but it was steeper than we wanted. Off to the side of this trail, we saw a more moderate trail that led into the woods. We skied into it, hoping the wooded path would traverse the mountain to afford an easier descent. But it didn't. We were skiing along the top of a rounded bank that steeply plummeted onto the original path — no matter which way you turned. Worse, it was covered in moguls (large mounds of snow that make skiing more difficult). These moguls combined with the thick forest made the descent treacherous. 
-One by one we all lost control and came tumbling to a halt, one of our skis deciding to continue the journey without us.
+On one occasion, my younger brother and I were tasked with choosing which run to take down an unknown part of the mountain. We carefully started down the main trail, but it was steeper than we wanted. Off to the side of this trail, we saw a more moderate trail that led into the woods. We skied into it, hoping the wooded path would traverse the mountain to afford an easier descent. But it didn't. We were skiing along the top of a rounded bank that steeply plummeted onto the original path — no matter which way you turned. Worse, it was covered in moguls (large mounds of snow that make skiing more difficult). These moguls combined with the thick forest made the descent treacherous. One by one, we all lost control and came tumbling to a halt, one of our skis deciding to continue downhill without us. When we finally reached the bottom, I 
+
 Though we all lost control — even losing our skis, we managed to avoid slamming into any trees.
 
 that everyone lost a ski on the way down. 
