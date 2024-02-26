@@ -12,6 +12,9 @@ Embark on unforgettable adventures with others. My younger brother, Matthew, and
 
 One by one, each of us lost at least one of our skis and came tumbling to a halt, the skis pertly deciding to continue the descent without their owners.
 
+One by one, each of us lost control, Our skis continue the descent with out us.
+, though managing to avoid crashing into any trees.
+
 When we finally reached the bottom, though the descent was harrowing, the calamity of my whole family tumbling down a hill together had me laughing so hard that the lift operator wondered if I was hurt.  If I feared the steep slope, this episode might have been the end of my skiing adventures. Instead, it's a cherished memory. 
 
 Challenges are inevitable, like steep places on a ski slope. They aren’t obstacles; they are opportunities in disguise.
