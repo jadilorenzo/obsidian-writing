@@ -12,6 +12,10 @@ Embark on unforgettable adventures with others. My younger brother, Matthew, and
 
 The calamity of the situation and the cacophony of errors made me laugh so hard that when I got to the bottom, the lift operator asked if I was hurt.
 
+The quick succession of every fall made me laugh harder and harder.
+The cacophony of falls made me laugh so hard
+After I reached f
+
 When we finally reached the bottom, though the descent was harrowing, the calamity of my whole family tumbling down a hill together had me laughing so hard that the lift operator wondered if I was hurt.  If I feared the steep slope, this episode might have been the end of my skiing adventures. Instead, it's a cherished memory. 
 
 Challenges are inevitable, like steep places on a ski slope. They aren’t obstacles; they are opportunities in disguise.
