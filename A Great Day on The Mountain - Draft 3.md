@@ -10,7 +10,7 @@ Since your conversation isn’t confined to people you brought with you, try to 
 
 Embark on unforgettable adventures with others. My younger brother, Matthew, and I once found a path that led straight into thick, dark woods. Instead of fearing the unknown, we plunged in and discovered our favorite run of the day. Even stressful experiences can be turned into adventures. On another occasion, Matthew and I were tasked with choosing which run to take down an unknown part of the mountain. We started down a trail that soon became steeper than we wanted. Off to the side of this trail, we saw a seemingly more moderate trail that led into the woods. We took the trail, hoping the wooded path would traverse the mountain to afford an easier descent. But it didn't. We were skiing along the top of a rounded bank that steeply plummeted onto the original path — no matter which way we turned. Worse, it was covered in moguls (large mounds of snow that make skiing more difficult). These moguls combined with the thick forest made the descent treacherous. One by one, each of us lost control and fell — our skis continuing the steep descent without us. 
 
-The calamity of the situation and the cacophony of errors 
+The calamity of the situation and the cacophony of errors made me laugh so hard that when I got to the bottom, the lift operator asked if I was hurt.
 
 When we finally reached the bottom, though the descent was harrowing, the calamity of my whole family tumbling down a hill together had me laughing so hard that the lift operator wondered if I was hurt.  If I feared the steep slope, this episode might have been the end of my skiing adventures. Instead, it's a cherished memory. 
 
