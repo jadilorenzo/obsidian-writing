@@ -1,10 +1,11 @@
 - [ ] **TODO:** incorporate phone calls in the section about skiing with family
 
 Pure white snow covers the mountain slopes. Colossal spires of rock reach the blue sky. Dark green evergreens dot the mountainside. Glades of lean, pale birch trees stand elegantly lit by the sun, and sheer gray cliffs jut out their aged faces to peer down on the quaint ski villages below. 
+The thrill of adventure, the elegance of proper form, and the exhilaration of speed make skiing fantastic even for those who don't bask in the mountain's beauty.
 
 The thrill of adventure, the elegance of proper form, and the exhilaration of speed make skiing fantastic even if you don't care for scenic views.
 The thrill of adventure, the elegance of proper form, and the exhilaration of speed make skiing fantastic even for those who don't admire the scenery.
-The thrill of adventure, the elegance of proper form, and the exhilaration of speed make skiing fantastic even for those.
+The thrill of adventure, the elegance of proper form, and the exhilaration of speed make skiing fantastic even for those who don't pause to enjoy the scenery.
 
 The exhilarating speed, the elegant form, the thrilling adventure
 The thrill of adventure, the elegance of proper form, and the exhilaration that comes from speed
