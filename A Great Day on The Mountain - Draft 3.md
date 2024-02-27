@@ -4,7 +4,7 @@ Pure white snow covers the mountain slopes. Colossal spires of rock reach the bl
 
 %% Transition: don't say what you said. Start with concrete.%%
 %% Don't introduce the main point. Just finish the description %%
-%% The thrill of speed, the elegance of proper form, and the *suspense of adventure* make the skiing season one of the best.  %%
+%% The thrill of speed, the elegance of proper form, and the suspense of adventure make the skiing season one of the best.  %%
 
 Even if one were to disregard the stunning scenery, the skiing experience is still breathtaking. The thrill of speed, the elegance of proper form, and the suspense of adventure make the skiing season one of the best. But eventually, the skiing season ends, the fun is forgotten, and the beautiful scenery fades in our memory. When you return home, what have you gained? Only the relationships you built and the adventures you shared truly last.
 
