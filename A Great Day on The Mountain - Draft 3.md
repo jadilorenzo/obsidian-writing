@@ -1,6 +1,6 @@
 - [ ] **TODO:** incorporate phone calls in the section about skiing with family
 
-Pure white snow covers the mountain slopes. Colossal spires of rock reach the blue sky. Dark green evergreens dot the mountainside. Glades of lean, pale birch trees stand elegantly lit by the sun, and sheer gray cliffs jut out their aged faces to peer down on the quaint ski villages below. The thrill of adventure, the elegance of proper form, and the exhilaration that comes from speed make skiing fantastic even if you don't care for scenic views.
+Pure white snow covers the mountain slopes. Colossal spires of rock reach the blue sky. Dark green evergreens dot the mountainside. Glades of lean, pale birch trees stand elegantly lit by the sun, and sheer gray cliffs jut out their aged faces to peer down on the quaint ski villages below. The thrill of adventure, the elegance of proper form, and the exhilaration of speed make skiing fantastic even if you don't care for scenic views.
 
 The exhilarating speed, the elegant form, the thrilling adventure
 The thrill of adventure, the elegance of proper form, and the exhilaration that comes from speed
