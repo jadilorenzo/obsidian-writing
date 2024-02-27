@@ -1,6 +1,9 @@
 - [ ] **TODO:** incorporate phone calls in the section about skiing with family
 
-Pure white snow covers the mountain slopes. Colossal spires of rock reach the blue sky. Dark green evergreens dot the mountainside. Glades of lean, pale birch trees stand elegantly lit by the sun, and sheer gray cliffs jut out their aged faces to peer down on the quaint ski villages below. The thrill of 
+Pure white snow covers the mountain slopes. Colossal spires of rock reach the blue sky. Dark green evergreens dot the mountainside. Glades of lean, pale birch trees stand elegantly lit by the sun, and sheer gray cliffs jut out their aged faces to peer down on the quaint ski villages below. 
+
+The exhilarating speed, the elegant form, the thrilling adventure
+The thrill of adventure, the elegance of proper form, and the 
 
 %% Transition: don't say what you said. Start with concrete.%%
 %% Don't introduce the main point. Just finish the description %%
