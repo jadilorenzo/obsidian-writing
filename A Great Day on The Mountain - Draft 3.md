@@ -1,6 +1,6 @@
 - [ ] **TODO:** incorporate phone calls in the section about skiing with family
 
-Pure white snow covers the mountain slopes. Colossal spires of rock reach the blue sky. Dark green evergreens dot the mountainside. Glades of lean, pale birch trees stand elegantly lit by the sun, and sheer gray cliffs jut out their aged faces to peer down on the quaint ski villages below. 
+Pure white snow covers the mountain slopes. Colossal spires of rock reach the blue sky. Dark green evergreens dot the mountainside. Glades of lean, pale birch trees stand elegantly lit by the sun, and sheer gray cliffs jut out their aged faces to peer down on the quaint ski villages below. The thrill of 
 
 %% Transition: don't say what you said. Start with concrete.%%
 %% Don't introduce the main point. Just finish the description %%
