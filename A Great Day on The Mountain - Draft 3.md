@@ -1,6 +1,10 @@
 - [ ] **TODO:** incorporate phone calls in the section about skiing with family
 
-Skiing is beautiful. Pure snow covers the mountain slopes. Colossal spires of rock meet the blue sky. Dark green evergreens dot the white mountainside. Glades of lean, pale birch trees stand elegantly lit by the sun, and sheer gray cliffs jut out their aged faces to peer down on the quaint ski villages below. 
+Pure white snow covers the mountain slopes. Colossal spires of rock reach the blue sky. Dark green evergreens dot the mountainside. Glades of lean, pale birch trees stand elegantly lit by the sun, and sheer gray cliffs jut out their aged faces to peer down on the quaint ski villages below. 
+
+%% Transition: don't say what you said. Start with concrete.%%
+%% Don't introduce the main point. Just finish the description %%
+%% The thrill of speed, the elegance of proper form, and the *suspense of adventure* make the skiing season one of the best.  %%
 
 Even if one were to disregard the stunning scenery, the skiing experience is still breathtaking. The thrill of speed, the elegance of proper form, and the suspense of adventure make the skiing season one of the best. But eventually, the skiing season ends, the fun is forgotten, and the beautiful scenery fades in our memory. When you return home, what have you gained? Only the relationships you built and the adventures you shared truly last.
 
