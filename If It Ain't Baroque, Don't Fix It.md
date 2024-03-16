@@ -11,4 +11,6 @@ Even more than what he said, Aaron Jackson expressed humor through his facial ex
 Even when correcting the choir, Aaron Jackson made people laugh.
 
 Aaron Jackson had energy. 
-Every single week, Aaron Jackson introduced the songs with zest. Initially, I thought, "If he's this energetic now, he must be more relaxed later." It's like seeing an energetic falling star that never disappears, it just keeps orbiting the planet that 
+Every single week, Aaron Jackson introduced the songs with zest. Initially, I thought, "If he's this energetic now, he must be more relaxed later." It's like seeing a falling star that never actually fades, it just keeps orbiting the planet with the same burning brightness forever. Aaron Jackson was ALWAYS that energized.
+He was energized straight through hours and hours of practice with the Choir, Youth Choir, Chamber Choir, and Orchestra on Wednesday and Sunday.
+Sometimes, he would be so excited about a musical piece he would ask the choir to repeat a section. He made the choir 
