@@ -9,3 +9,5 @@ His most memorable use of humor was on one regular Wednesday evening choir pract
 In addition, to this day, Aaron Jackson is the only person to invent a nickname for my name: Jacob. The youth choir was singing one song that involved singing the word "Hallelujah." To Aaron Jackson's dismay, we were singing that word "Hallelu - yuh" as in "yummy." He instructed us to sing it like "Hallelu - yaw" like a German saying "Ya, man" or, even better, like my name: "Yah - cob."
 Even more than what he said, Aaron Jackson expressed humor through his facial expressions and the brightness of his eyes — or as he described it when describing the choir's proper facial expression. "From your nose down, your face should look like an opera singer; from your nose up, you should have the excitement of a first-grade teacher." His eyes always shone in excitement like that of an energetic first-grade teacher. Even when someone was being difficult, his eyes still shone — maybe even brighter.
 Even when correcting the choir, Aaron Jackson made people laugh.
+
+Aaron Jackson had energy.
