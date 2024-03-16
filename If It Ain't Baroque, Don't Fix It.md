@@ -10,4 +10,5 @@ In addition, to this day, Aaron Jackson is the only person to invent a nickname 
 Even more than what he said, Aaron Jackson expressed humor through his facial expressions and the brightness of his eyes — or as he described it when describing the choir's proper facial expression. "From your nose down, your face should look like an opera singer; from your nose up, you should have the excitement of a first-grade teacher." His eyes always shone in excitement like that of an energetic first-grade teacher. Even when someone was being difficult, his eyes still shone — maybe even brighter.
 Even when correcting the choir, Aaron Jackson made people laugh.
 
-Aaron Jackson had energy.
+Aaron Jackson had energy. 
+Every single week, Aaron Jackson introduced the songs with zest. Initially, I thought, "If he's this energetic now, he must be more relaxed later." It's like seeing an energetic falling star that never disappears, it just keeps orbiting the planet that 
