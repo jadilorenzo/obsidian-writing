@@ -12,4 +12,5 @@ First, he built a talented musical community. Take Karen Bullock for instance: s
 Then there's the Danchi family. All four of the kids played violin and viola professionally, and two of the sisters were always in the orchestra. 
 Furthermore, so many people were drawn to Aaron Jackson and his music program, that there were more than enough people for a full choir and orchestra to perform every week.
 Second, Aaron Jackson conducted beautiful concerts. 
-He spent months selecting music for the annual Christmas concert. Sometimes only a month after the 
+He spent months selecting music for the annual Christmas concert. Sometimes only a month after the Christmas performance, Aaron Jackson would roll out his selection for the next year.
+But when this performance finally came, it was a big deal. The
