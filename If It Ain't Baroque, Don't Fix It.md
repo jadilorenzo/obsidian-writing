@@ -13,4 +13,4 @@ Then there's the Danchi family. All four of the kids played violin and viola pro
 Furthermore, so many people were drawn to Aaron Jackson and his music program, that there were more than enough people for a full choir and orchestra to perform every week.
 Second, Aaron Jackson conducted beautiful concerts. 
 He spent months selecting music for the annual Christmas concert. Sometimes only a month after the Christmas performance, Aaron Jackson would roll out his selection for the next year.
-But when this performance finally came, it was a big deal. The
+But when this performance finally came, it was a big deal. The auditorium which could easily fit 1500 people was packed. Seats were lined against the wall, and they too were filled. I was thankful the youth choir had reserved seating — because we might have had to stand otherwise.
