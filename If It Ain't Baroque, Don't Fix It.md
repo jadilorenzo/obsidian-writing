@@ -9,3 +9,4 @@ Besides enunciation, Aaron Jackson taught musical self-evaluation. He would ofte
 
 Aaron Jackson achieved remarkable results. 
 First, he built a talented musical community. Take Karen Bullock for instance: she could be given any complicated piece of piano music she'd never seen and play it perfectly... immediately. Out of the hours and hours she spent accompanying choir practice and performing, I've only heard her make one single mistake. Then there's the Danchi family. All four of the kids played violin and viola professionally, and two of the sisters were always in the orchestra. Furthermore, so many people were drawn to Aaron Jackson and his music program, that there were more than enough people for a full choir and orchestra to perform every week.
+Second, Aaron Jackson conducted beautiful concerts. He spent 
