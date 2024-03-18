@@ -5,4 +5,4 @@ Aaron Jackson had energy. Every single week, Aaron Jackson introduced the songs 
 
 Aaron Jackson taught music with precision. 
 One of the more important techniques Aaron Jackson taught was what is called having "round vowels"
-For example, Aaron Jackson taught "round vowels." A lot of choirs have vowel issues: where each choir member's drawl or slight accent compounds to a collective southern accent. 
+For example, Aaron Jackson taught "round vowels." A lot of choirs have vowel issues: where each choir member's drawl or slight accent compounds to a collective southern accent. This might turn "" Aaron Jackson would remind us, "We're not a country town choir, you know." Having round vowels involves 
