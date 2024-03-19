@@ -13,5 +13,6 @@ I shared Aaron Jackson's energy for music, but when it came time for school, all
 
 But eventually, I began to notice people (including "Aaron Jackson") who were genuinely motivated. How could they stay motivated and happy simultaneously? They pursued what they were good at, their unique gifts from God. In the process, they accomplished great things and found joy in their work. An apparent contradiction in my mind at the time.
 
-Mrs. Sue Grey did what she was made to do. She was my public speaking teacher first and my Mock Trial teacher later on. 
-She had energy. Aaron Jackson only compared to a first-grade teacher, she *was* a former first-grade teacher. Indeed, in public speaking class, she would talk to specific students instead of the class at large, whispering — using their first  and midle names to address them.
+Mrs. Sue Grey did what she was made to do. She was my public speaking teacher first and my Mock Trial coach later on. 
+She had energy. Aaron Jackson only compared to a first-grade teacher, she *was* a former first-grade teacher. Indeed, in public speaking class, she would talk to specific students instead of the class at large, sometimes whispering — using their first and middle names to address them. Though this technique shattered a few personal space bubbles, it gripped the class's attention like nothing else.
+Her energy showed in Mock Trial too. Mock Trial 
