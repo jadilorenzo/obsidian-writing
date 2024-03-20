@@ -17,3 +17,4 @@ Mrs. Sue Grey did what she was made to do. She was my public speaking teacher fi
 
 Steve Noble does what he loves, preparing students for the real world. Steve Nobel teaches civics and ethics at a local co-op and runs his podcast The Steve Noble Show. Both of Mr. Noble's classes are aimed at preparing the next generation. In his civics class, for example, he spent over half of a lecture talking about the U.S. Debt Clock (a .gov website tallying the American debt accrual) and all of its national sovereignty implications. In his ethics class, Steve Noble taught ethical decision-making on sticky topics such as abortion, war, and torture. Mr. Noble is a really smart man and could easily make better money doing something different, but he doesn't. He does the hard work of preparing students for real-life issues, something he loves.
 
+John Calvin Young is gifted at what he does.
