@@ -25,6 +25,5 @@ Again when I started learning how to code, my efforts were half-hearted. However
 
 I began to find something beautiful in running and coding — the same heavenly nature Aaron Jackson saw in choral music, the same elegance Mrs. Sue Grey found in a persuasive speech, the same value Steve Noble saw in an ethical dilemma, and the same reward John Calvin Young found in solving hard problems. I felt motivated and creative. I did hard things; things for which no external gumption was required. I was doing what I loved. I was motivated.
 
-Not only was I motivated, I was happy. Aaron Jackson poured his life into music and created a musical heaven on earth. Mrs. Sue Grey spent her time teaching 
-
+Not only was I motivated, I was happy. Aaron Jackson poured his life into heavenly music. Mrs. Sue Grey spent her time teaching often disgruntled teenagers how to speak something worth hearing. Steven Noble dedicated his life to preparing teenagers for real-world problems. John Calvin Young spends his days solving hard technical problems to make hard . 
 
