@@ -23,4 +23,5 @@ Eventually, my struggle with laziness began to change — for the first time in 
 
 Again when I started learning how to code, my efforts were half-hearted. However, when I was coding, I got to spend time with my older brother. And to my mind, any time spent away from math was a success. After a while, I started to realize something: I was getting good at coding. If I had a website idea in my head, I could make it happen (even though the code might be terribly convoluted and only understandable to me.) I would assign myself coding exercises; ones that *I* invented. I would research design principles that nobody was telling me to research. It was the first time I was doing "work" and honestly enjoying it.
 
-I began to find something beautiful in coding — the same heavenly nature Aaron Jackson saw in choral music; the same elegance Mrs. Sue Grey found in a persuasive speech; the same value Steve Noble saw in an ethics
+I began to find something beautiful in running and coding — the same heavenly nature Aaron Jackson saw in choral music; the same elegance Mrs. Sue Grey found in a persuasive speech; the same value Steve Noble saw in an ethical dilemma; and the same reward John Calvin Young found in solving hard problems. I saw progress and art. I felt motivated and creative. I worked
+no gumption
