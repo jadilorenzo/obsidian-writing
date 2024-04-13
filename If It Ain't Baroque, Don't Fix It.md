@@ -11,6 +11,7 @@ Aaron Jackson achieved remarkable results. First, he built a talented musical co
 
 Aaron Jackson had something I wanted: motivation and impact. For years, I struggled with motivation. For years, I dreamed of doing something with impact. Eventually, I began to notice other people who had the same motivation and impact.
 
+Take Mrs. Sue Grey for instance: she was motivated. Mrs. Grey found her purpose teaching students, even when they were obstinate tee 
 
 
 
