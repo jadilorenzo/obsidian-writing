@@ -23,6 +23,7 @@ Caleb Woods is passionate about optimizing. Caleb Woods is the owner and CEO of 
 Things I want to summon
 Reference back to the intro solo part
 
+
 Things I want to say
 I began to find my passions
 I was fed by their passions
