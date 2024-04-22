@@ -20,11 +20,15 @@ Sue Grey was passionate about public speaking. In her public speaking class, she
 
 Caleb Woods is passionate about optimizing. Caleb Woods is the owner and CEO of the RoleModel Software consulting company. Every Friday, RoleModel Software has what is called a Chow and Pow-Wow, where the company shares a meal (even over Zoom) and various members present on various topics — such as John Calvin Young's "The Case of The Uncreated Index" or Mark Kraemer's "The Science of Motivation." One of my favorite presentations was Caleb Woods's presentation on keyboard shortcuts. Developers love customization, but Mr. Woods was extra-passionate about keyboard shortcuts. He showed how almost all developer tools and websites had uniform navigation shortcuts: "H," "J," "K," and "L". He talked about using "^Tab" and "^Shift-Tab" for tab navigation. He even advocated using "⌘X" over "⌘C + Delete" because it saved a single keystroke. Above all, he encouraged using file switchers (⌘P) and command pallets (⌘Shift-P) instead of inefficiently moving your cursor all over the place. But Mr. Wood's passion for optimizing goes beyond shortcuts. One week, after giving a lecture on maximizing impact, Mr. Woods opened the discussion up to the whole company by asking "Where are we inefficient? Where are those little inefficiencies that can add up to lots of wasted time?" Several inefficiencies were considered — some of which Mr. Woods had already planned to amend. But what struck me was the humility: Mr. Woods knew there were inefficiencies, and he knew he couldn't see all of them. Caleb Woods took optimizing to a whole new level.
 
+
+
 Things I want to summon
 Reference back to the intro solo part
-
+Periodic Table of Elements's song
+Whispering to students 
+Presenting shortcuts
 
 Things I want to say
 I began to find my passions
 I was fed by their passions
-
+Their passion gave them joy
