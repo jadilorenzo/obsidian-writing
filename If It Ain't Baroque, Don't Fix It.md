@@ -35,4 +35,17 @@ While working on piano or programming,
 
 I've begun to notice a disturbing trend when I'm working on something like piano or programming — I enjoy the work. Is it hard? Certainly. I get the same brain fog one might get after taking a long test. But it's rewarding. I made something. I played something. But then I move on to whatever is next and forget the bliss I've just left. Often I find myself craving that satisfaction, but unwilling to pay the price of hard work. Often, I expect to find that fulfillment in entertainment like a good movie or song, but it isn't the same. 
 
-Plan for last paragraph
+**Plan for the last paragraph:**
+Thse passions may seem silly
+Unrelatable 
+Each person is different
+The joy is real
+The joy lasts
+I've felt it myself
+You've probabbly felt it yourself
+what's your good work
+What's keeping you from staying there (in a state of passionate work) longer
+Laziness and Initiative for me
+Business, poor scheduling, unawareness
+how many people are unhappy because the didn't know heaven was found in good work
+"There's no better place on earth, than the road that leads to heaven"
