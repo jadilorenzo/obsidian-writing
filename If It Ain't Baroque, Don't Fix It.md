@@ -51,4 +51,4 @@ Business, poor scheduling, unawareness
 how many people are unhappy because they didn't know heaven was found in good work
 "There's no better place on earth, than the road that leads to heaven"
 
-Aaron Jackson rolled around on the floor. Beth Grose sang silly chemistry songs. Sue Grey whispered rhetorical questions. Caleb Woods advocated for shortcutting single keystrokes. These actions and passions they represent may seem silly and unrelatable. I
+Aaron Jackson rolled around on the floor. Beth Grose sang silly chemistry songs. Sue Grey whispered rhetorical questions. Caleb Woods advocated for shortcutting single keystrokes. These actions and passions they represent may seem silly and unrelatable. Although I don't understand why some people like country, the joy is still real. But unlike entertainment where the show ends, the curtains close, and the credits scroll past, a passion for teaching, performing, optimizing, and creating
