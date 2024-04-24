@@ -31,4 +31,5 @@ We forget when we have these moments of joy. We don't seek them in the right pla
 
 Recently, I've discovered myself enjoying doing hard things 
 I've recently noticed myself
-While working on piano or programming, I've begun to notice a disturbing trend — I enjoy the work. Is it hard? Certainly. I get the same brain fog I get after taking a long test, but it's rewarding. I made something. I played something.
+While working on piano or programming,
+I've begun to notice a disturbing trend when I'm working on something like piano or programming — I enjoy the work. Is it hard? Certainly. I get the same brain fog one might get after taking a long test. But it's rewarding. I made something. I played something. But then I move on to whatever is next and forget the bliss I've just left. And often I I often expect 
