@@ -29,4 +29,6 @@ I've had moments of joy and purpose while doing various types of work. However, 
 
 We forget when we have these moments of joy. We don't seek them in the right places. As a teen, you need to look for purpose.
 
-Recently, I've 
+Recently, I've discovered myself enjoying doing hard things 
+I've recently noticed myself
+While working on piano or programming, I've begun to notice a disturbing trend — I enjoy the work. Is it hard? Certainly. I get the same brain fog I get after taking a long test, but it's rewarding. I made something. I played something.
