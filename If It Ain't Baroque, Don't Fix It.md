@@ -37,7 +37,8 @@ I've begun to notice a disturbing trend when I'm working on something like piano
 
 **Plan for the last paragraph:**
 These passions may seem silly
-Unrelatable 
+List them.
+Un-relatable 
 Each person is different
 The joy is real
 The joy lasts
@@ -49,3 +50,5 @@ Laziness and Initiative for me
 Business, poor scheduling, unawareness
 how many people are unhappy because the didn't know heaven was found in good work
 "There's no better place on earth, than the road that leads to heaven"
+
+Aaron Jackson rolled around on the floor. Beth Grose sang silly chemistry songs. Sue Grey whispered rhetorical questions. 
