@@ -48,7 +48,7 @@ what's your good work
 What's keeping you from staying there (in a state of passionate work) longer
 Laziness and Initiative for me
 Business, poor scheduling, unawareness
-how many people are unhappy because the didn't know heaven was found in good work
+how many people are unhappy because they didn't know heaven was found in good work
 "There's no better place on earth, than the road that leads to heaven"
 
-Aaron Jackson rolled around on the floor. Beth Grose sang silly chemistry songs. Sue Grey whispered rhetorical questions. 
+Aaron Jackson rolled around on the floor. Beth Grose sang silly chemistry songs. Sue Grey whispered rhetorical questions. Caleb Woods advocated for shortcutting single keystrokes. These actions and passions they represent may seem silly and unrelatable. I
