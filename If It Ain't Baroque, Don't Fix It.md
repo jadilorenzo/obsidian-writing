@@ -28,7 +28,10 @@ Now instead of avoiding my work, I’m searching for work about which I can be p
 
 Transition topic sentence: Because of their passion, these people found joy and created unique communities.
 
-Caleb Woods, CEO of RoleModel Software, is passionate about his business, and more importantly, his employees. Calebs Wood's reputation precedes him so that in his words he "...plans to never need to put together a resumé." Within two years of meeting him, the founder of RoleModel said he knew that Caleb Woods would be his successor. Caleb Woods 
+Caleb Woods, CEO of RoleModel Software, is passionate about his business and, more importantly, his employees. Calebs Wood's reputation precedes him so that in his words he "...plans to never need to put together a resumé." Within two years of meeting him, the founder of RoleModel said he knew that Caleb Woods would be his successor. Caleb Woods 
+Caleb Woods leads RoleModel in the pattern of "Character, Collaboration, Craftsmanship." 
+
+RoleModel stands out because of its Craftsmanship Academy where 
 
 hopes to never have to put together a resumé because of this.
 RoleModel software was founded by my friend's dad, Mr. Auer. 
