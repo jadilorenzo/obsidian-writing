@@ -44,4 +44,4 @@ His reputation precedes him by so long that he "...hopes to never need to put to
 Caleb Woods, CEO of Rolemodel Software, is passionate about helping people grow in "Character, Collaboration, and Craftsmanship" — the company motto. Mr. Woods, himself, is an example of great character and skill. He has such a reputation for business and leadership skills that he "...plans to never need to put together a resumé." Within two years of hiring him, the founder of RoleModel said he knew that Caleb Woods would be his successor. Every January
 
 
-Caleb Woods, CEO of Rolemodel Software, is passionate about helping people grow in "Character, Collaboration, and Craftsmanship," the company motto. 
+Caleb Woods, CEO of Rolemodel Software, is passionate about helping people grow in "Character, Collaboration, and Craftsmanship" — the company motto. Every January, Mr. Woods selects the applicants for
