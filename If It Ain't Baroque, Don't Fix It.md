@@ -21,6 +21,9 @@ Caleb Woods is passionate about optimizing. Caleb Woods is the owner and CEO of 
 
 Aaron Jackson rolled around on the floor. Beth Grose sang silly chemistry songs. Sue Gray whispered rhetorical questions. Caleb Woods advocated for shortcutting single keystrokes. These actions and passions they represent may seem silly and unrelatable. Although, I don't understand why some people like country, the joy is still real. But unlike entertainment where the show ends, the curtains close, and the credits scroll past, a true passion for teaching, performing, optimizing, or creating lasts. I've certainly felt it before. Sometimes when I'm playing piano or writing code, I feel the same inner fire. My younger brother can assure you: I can't comprehend anything beyond the piano when I'm playing — even if he's been trying to get my attention for several minutes. You've probably felt this joy before. Perhaps you felt it writing that essay about Shakespeare. Maybe it was that time you cooked those steaks to perfection. Maybe it was that time you fixed the lawn mower's carburetor. I never saw those times as opportunities. Work made me feel uncomfortable so I avoided it — in every form. But when I felt that passion, like that one Christmas when I couldn't stop playing "I Heard the Bells," I overlooked the joy and satisfaction that lay at my fingertips. I thought all work had to be endured... to eventually get around to the fun. I didn't know the joy that comes from great work. Do you?
 
-  
-
 Now instead of avoiding my work, I’m searching for work about which I can be passionate. Life is filled with toil, but for a rare few, their work brings joy. Beyond bringing delight to themselves, passionate people frequently bring purpose and fulfillment to their community.
+
+
+
+
+Transition topic sentence: Because of their joy, these people found joy 
