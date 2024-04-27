@@ -34,6 +34,8 @@ Caleb Woods leads RoleModel in the pattern of "Character, Collaboration, Craftsm
 
 RoleModel stands out because of its Craftsmanship Academy: a program where people with basic coding experience are trained to eventually become software "craftsmen." 
 
+Becoming a "craftsman" is the RoleModel equivalent of becoming a senior developer, but the difference is how it's achieved. Ordinarily, a developer becomes a senior developer when he's worked long enough. However, one only becomes a craftsman when they've mastered the craft of programming.
+
 hopes to never have to put together a resumé because of this.
 RoleModel software was founded by my friend's dad, Mr. Auer. 
 Within two years of meeting Mr. Woods, Mr. Auer knew 
@@ -44,4 +46,4 @@ His reputation precedes him by so long that he "...hopes to never need to put to
 Caleb Woods, CEO of Rolemodel Software, is passionate about helping people grow in "Character, Collaboration, and Craftsmanship" — the company motto. Mr. Woods, himself, is an example of great character and skill. He has such a reputation for business and leadership skills that he "...plans to never need to put together a resumé." Within two years of hiring him, the founder of RoleModel said he knew that Caleb Woods would be his successor. Every January
 
 
-Caleb Woods, CEO of RoleModel Software, is passionate about helping people grow in "Character, Collaboration, and Craftsmanship" — the company motto. Every January, Mr. Woods selects the applicants for the "Craftsmanship Academy." Becoming a "craftsman" is the RoleModel equivalent of becoming a senior developer, but the difference is how it's achieved. Ordinarily, a developer becomes a senior developer when he's worked long enough. However, one only becomes a cra
+Caleb Woods, CEO of RoleModel Software, is passionate about helping people grow in "Character, Collaboration, and Craftsmanship" — the company motto. Every January, Mr. Woods selects the applicants for the "Craftsmanship Academy." (Becoming a "craftsman" is the RoleModel equivalent of becoming a senior developer.) The Academy takes students and 
