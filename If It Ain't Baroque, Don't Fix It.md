@@ -28,4 +28,6 @@ Now instead of avoiding my work, I’m searching for work about which I can be p
 
 Transition topic sentence: Because of their passion, these people found joy and created unique communities.
 
-Caleb Woods is passionate about the people of RoleModel software. RoleModel software was founded by my friend's dad, Mr. Auer. Within two years of meeting Mr. Woods, Mr. Auer knew this
+Caleb Woods is passionate about the people of RoleModel software. Calebs Woods hopes to never have to put together a resumé 
+RoleModel software was founded by my friend's dad, Mr. Auer. 
+Within two years of meeting Mr. Woods, Mr. Auer knew 
