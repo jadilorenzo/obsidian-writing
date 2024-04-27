@@ -26,4 +26,6 @@ Now instead of avoiding my work, I’m searching for work about which I can be p
 
 
 
-Transition topic sentence: Because of their joy, these people found joy 
+Transition topic sentence: Because of their passion, these people found joy and created unique communities.
+
+Caleb Woods is passionate about the people of RoleModel software. RoleModel software was founded by one of my best friend's dad
