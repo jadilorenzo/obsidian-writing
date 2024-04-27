@@ -39,5 +39,6 @@ RoleModel software was founded by my friend's dad, Mr. Auer.
 Within two years of meeting Mr. Woods, Mr. Auer knew 
 
 Caleb Woods, CEO of Rolemodel Software, is passionate about creating flourishing people.
+His reputation precedes him by so long that he "...hopes to never need to put together a resumé." 
 
-Caleb Woods, CEO of Rolemodel Software, is passionate about helping people grow in "Character, Collaboration, and Craftsmanship." Mr. Woods is an example of great character and skill. In fact, because he wants his reputation t
+Caleb Woods, CEO of Rolemodel Software, is passionate about helping people grow in "Character, Collaboration, and Craftsmanship." Mr. Woods, himself, is an example of great character and skill. 
