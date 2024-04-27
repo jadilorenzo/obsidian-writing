@@ -26,25 +26,5 @@ Now instead of avoiding my work, I’m searching for work about which I can be p
 
 
 
-Transition topic sentence: Because of their passion, these people found joy and created unique communities.
-
-Caleb Woods, CEO of RoleModel Software, is passionate about his business and, more importantly, his employees. Calebs Wood's reputation precedes him so that in his words he "...plans to never need to put together a resumé." Within two years of meeting him, the founder of RoleModel said he knew that Caleb Woods would be his successor. Caleb Woods 
-
-Caleb Woods leads RoleModel in the pattern of "Character, Collaboration, Craftsmanship." 
-
-RoleModel stands out because of its Craftsmanship Academy: a program where people with basic coding experience are trained to eventually become software "craftsmen." 
-
-Becoming a "craftsman" is the RoleModel equivalent of becoming a senior developer, but the difference is how it's achieved. Ordinarily, a developer becomes a senior developer when he's worked long enough. However, one only becomes a craftsman when they've mastered the craft of programming.
-
-hopes to never have to put together a resumé because of this.
-RoleModel software was founded by my friend's dad, Mr. Auer. 
-Within two years of meeting Mr. Woods, Mr. Auer knew 
-
-Caleb Woods, CEO of Rolemodel Software, is passionate about creating flourishing people.
-His reputation precedes him by so long that he "...hopes to never need to put together a resumé." 
-
-Caleb Woods, CEO of Rolemodel Software, is passionate about helping people grow in "Character, Collaboration, and Craftsmanship" — the company motto. Mr. Woods, himself, is an example of great character and skill. He has such a reputation for business and leadership skills that he "...plans to never need to put together a resumé." Within two years of hiring him, the founder of RoleModel said he knew that Caleb Woods would be his successor. Every January
-
-
 Caleb Woods, CEO of RoleModel Software, is passionate about helping people grow in "Character, Collaboration, and Craftsmanship" — the company motto. Every January, Mr. Woods selects the applicants for the "Craftsmanship Academy." (Becoming a "craftsman" is the RoleModel equivalent of becoming a senior developer.) The Academy typically takes college graduates and trains them in the "RoleModel Way" of programming. The Academy builds careers: taking a person from novice to craftsman in 7 to 10 years, and most employees stay longer than that. Many have worked at RoleModel since it was founded in 1997. Mr. Woods not only selects the upcoming "academites" (as we call them) but also runs the academy, teaching most of the lessons. At the end of the Academy, the academites present their fully-functional online go-fish game **at** the weekly "Chow and Pow-Wow" where the local offices (in NC and WI) eat together (chow) and people give PowerPoint **presentations** (pow-wow). A lot of the talks are technical, but many of Mr. Wood's presentations, when not monetary reviews, are about interpersonal skills like leadership, teamwork, and good listening. And Mr. Woods listens well. In fact, during a recent chow, he asked everyone what "small, persistent issues have been costing time." One person mentioned intermittent test failures and another mentioned the need for better documentation. Caleb Woods wrote them down and explained how he had come up with a plan to improve documentation over the next CCC days. CCC days are the days set aside every quarter for optimization and experimentation **where** the whole company gathers in person. For example, my friend Malachi came up with an idea to speed up customer onboarding work. He built it over CCC days and it was soon integrated into our system. Beyond quarterly meetups, RoleModel also hosts an annual retreat where the employees are encouraged to bring their families. One of my friends at RoleModel got to attend these retreats with his dad years before he knew he was interested in coding. Even outside of work hours, Caleb Woods has fostered an incredible community. All the employees are friends. Many go to church together. They often played disc golf or pickleball after work. 
 
