@@ -41,4 +41,4 @@ Within two years of meeting Mr. Woods, Mr. Auer knew
 Caleb Woods, CEO of Rolemodel Software, is passionate about creating flourishing people.
 His reputation precedes him by so long that he "...hopes to never need to put together a resumé." 
 
-Caleb Woods, CEO of Rolemodel Software, is passionate about helping people grow in "Character, Collaboration, and Craftsmanship." Mr. Woods, himself, is an example of great character and skill. He has such a reputation for business and leadership skills that he "...plans to never need to put together a resumé." Within two years of meeting him, the founder of RoleModel said he knew that Caleb Woods would be his successor. 
+Caleb Woods, CEO of Rolemodel Software, is passionate about helping people grow in "Character, Collaboration, and Craftsmanship." Mr. Woods, himself, is an example of great character and skill. He has such a reputation for business and leadership skills that he "...plans to never need to put together a resumé." Within two years of meeting him, the founder of RoleModel said he knew that Caleb Woods would be his successor. Every January
