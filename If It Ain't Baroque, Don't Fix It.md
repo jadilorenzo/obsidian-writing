@@ -27,8 +27,4 @@ Include weekly prayer at chow?
 
 
 
-Sue Gray was passionate about Mock Trial, a competitive form of speech and debate. Mock Trial is a full simulation of a civil or criminal case designed to expose students to the legal profession. Competitions were held annually at the local, state, and national levels, often at real courthouses with real judges. Mrs. Gray dedicated twenty years of volunteer work to this sport and hand-picked each member of her Mock Trial teams. As soon as the year's casebook was released, she was ready. Weekly, she would quiz the team on their knowledge of the case. Weekly, she would share new insights into the case. 
-
-Whenever we practiced and Mrs. Grey was presiding as judge, she would 
-
-Whenever a student attorney objected during a practice round, Mrs. Gray would preside as judge. She let the attorneys argue the objection and ruled whatever was harder for the student's case to handle, preparing us for any . 
+Sue Gray was passionate about Mock Trial, a competitive form of speech and debate. Mock Trial is a full simulation of a civil or criminal case designed to expose students to the legal profession. Competitions were held annually at the local, state, and national levels, often at real courthouses with real judges. Mrs. Gray dedicated twenty years of volunteer work to this sport and hand-picked each member of her Mock Trial teams. As soon as the year's casebook was released, she was ready. Weekly, she would quiz the team on their knowledge of the case. Weekly, she would share new insights into the case. Whenever a student attorney objected during a practice round, Mrs. Gray would preside as judge. She let the attorneys argue the objection and ruled whatever was harder for the student's case to handle — preparing us for any contingency. Beyond classroom practice, Mrs. Gray expected a high level of independent collaboration. There were hour-long phone calls between students. Often students
