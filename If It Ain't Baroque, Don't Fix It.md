@@ -27,4 +27,5 @@ Include weekly prayer at chow?
 
 
 
-Sue Gray 
+Sue Gray was passionate about Mock Trial. Mock Trial is a competitive form of speech and debate in the form of a full civil or criminal case
+with local, state, and national tournaments.
