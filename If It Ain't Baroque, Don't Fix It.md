@@ -39,4 +39,4 @@ Sue Gray was passionate about Mock Trial. Mock Trial is a full simulation of a c
 
 
 
-Sue Gra
+Sue Gray was passionate about mock trial. A mock trial is a courtroom simulation complete with
