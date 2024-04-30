@@ -31,4 +31,4 @@ Sue Gray was passionate about Mock Trial, a competitive form of speech and debat
 
 Whenever we practiced and Mrs. Grey was presiding as judge, she would 
 
-During a practice round, whenever a student attorney objectio
+Whenever a student attorney objected during a practice round, Mrs. Gray would preside as judge. She let the attorneys argue the objection and ruled whatever was harder for the student's case to handle, preparing us for any . 
