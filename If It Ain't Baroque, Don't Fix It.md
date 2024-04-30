@@ -48,3 +48,4 @@ Every week, she would quiz her students on their knowledge of the case and affid
 	- [ ] Add an image of who she was
 	See mindmap...
 - [ ] Figure out what to do regarding the community section
+- [ ] 
