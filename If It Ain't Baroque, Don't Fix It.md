@@ -27,4 +27,4 @@ Include weekly prayer at chow?
 
 
 
-Sue Gray was passionate about Mock Trial, a competitive form of speech and debate. Mock Trial is a full simulation of a civil or criminal case designed to expose students to the legal profession. Competitions were held annually at the local, state, and national le 
+Sue Gray was passionate about Mock Trial, a competitive form of speech and debate. Mock Trial is a full simulation of a civil or criminal case designed to expose students to the legal profession. Competitions were held annually at the local, state, and national levels, often at real courthouses with real judges. Mrs. Gray dedicated twenty years of volunteer work to this sport and hand-picked each member of her Mock Trial team. 
