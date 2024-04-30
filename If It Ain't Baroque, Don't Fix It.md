@@ -31,7 +31,8 @@ Sue Gray was passionate about Mock Trial, a competitive form of speech and debat
 
 Mrs. Gray dedicated twenty years of volunteer work to this sport and hand-picked each member of her Mock Trial teams. As soon as the year's casebook was released, she was ready. Weekly, she would quiz the team on their knowledge of the case. Weekly, she would share new insights into the case. 
 
-Whenever student attorneys practiced debating an objection, Mrs. Gray would preside as judge, letting the attorneys argue the objection till neither attorney had more to add. But instead of ruling according to who was right, she would rule
+Whenever student attorneys practiced debating an objection, Mrs. Gray would preside as judge, letting the attorneys argue the objection till neither attorney had more to add. Then she would rule whichever way made the students' case more difficult. She prepared 
+
 to make the student's case harder to make
 whichever way was harder for the student's case to handle — preparing us for every contingency. 
 
