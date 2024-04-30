@@ -43,4 +43,4 @@ Sue Gray was passionate about mock trial. Mock trial is a simulated courtroom co
 
 attorneys, witnesses, affidavits, evidence, a judge, and a jury. 
 
-Sue Gray was passionate about mock trial. Mock trial is a simulated courtroom complete withattorneys, witnesses, affidavits, evidence, a judge, and a jury. 
+Sue Gray was passionate about mock trial. Mock trial is a simulated courtroom complete with attorneys, witnesses, affidavits, evidence, a judge, and a jury. Every year teams would compete at regional, state, and national levels for the championship title. Mrs. Gray dedicated twenty years of her life coaching mock trial, a job for which she was paid no more than the price of the raw case materials.
