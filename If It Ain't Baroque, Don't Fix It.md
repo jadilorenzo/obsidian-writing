@@ -51,4 +51,4 @@ Every week, she would quiz her students on their knowledge of the case and affid
 - [x] Figure out what to do regarding the community section
 	Changed.
 
-Sue Gray was passionate about mock trial. Mock trial is a simulated courtroom competition complete with attorneys, witnesses, affidavits, evidence, a judge, and a jury. The championship had three tiers: regional, state, and national. 
+Sue Gray was passionate about mock trial, having dedicated twenty years of her life to volunteer coaching. Mock trial is a simulated courtroom competition complete with attorneys, witnesses, affidavits, evidence, a judge, and a jury. The mock trial championship had three tiers: regional, state, and national. 
