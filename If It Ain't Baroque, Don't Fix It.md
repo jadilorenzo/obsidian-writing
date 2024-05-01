@@ -44,8 +44,11 @@ Sue Gray was passionate about mock trial. Mock trial is a simulated courtroom co
 Todo:
 - [x] Salvage good wording
 Every week, she would quiz her students on their knowledge of the case and affidavits. Every week, she would share discoveries she had made about the case. Whenever her student attorneys practiced objection arguments, "Judge" Gray would rule in whichever way tested her students' case the most.
-- [ ] Reorganize to prioritize a picture of sue gray
-	- [ ] Add an image of who she was
+- [x] Reorganize to prioritize a picture of sue gray
+	- [x] Add an image of who she was
 	See mindmap...
-- [ ] Figure out what to do regarding the community section
-- [ ] 
+	Dramatically read example testimonies
+- [x] Figure out what to do regarding the community section
+	Changed.
+
+Sue Gray was passionate about mock trial. Mock trial is a simulated courtroom competition complete with attorneys, witnesses, affidavits, evidence, a judge, and a jury. The championship had three tiers: regional, state, and national. 
