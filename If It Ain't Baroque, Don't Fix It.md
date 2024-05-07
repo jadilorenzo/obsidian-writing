@@ -7,7 +7,11 @@ Aaron Jackson had energy. He blazed through hours and hours of practice with the
 
 Aaron Jackson taught music with precision. For instance, he taught the choir to have "tall" vowels. Choirs often have "flat" vowels and, consequently, a collective southern accent. Such flat vowels might turn "A mighty fortress is our God" into "I my dee fort dress is are God." As Aaron Jackson would remind us, "We're not a country town choir, you know.” 
 
-Tall vowels involve, instead of singing flat vowels like "Aw" as in the sound your doctor tells you to make, singing tall vowels like "Ah" as in the British pronunciation of "Top." It’s about opening the space behind your jaw like when you're yawning to gain greater resonance. Such resonance allows a listener to feel the vibration of the music, even from the back seat of an auditorium. 
+Tall vowels are created by 
+
+Tall vowels involve, instead of singing flat vowels like "Aw" as in the sound your doctor tells you to make, singing tall vowels like "Ah" as in the British pronunciation of "Top." 
+
+It’s about opening the space behind your jaw like when you're yawning to gain greater resonance. Such resonance allows a listener to feel the vibration of the music, even from the back seat of an auditorium. 
 
 A common tall vowel warmup we practiced was singing "ma, may, me, my, mow, mu" in unison, attempting to maintain the resonance from vowel to vowel. Aaron Jackson also taught coordinated consonants. Take "immense and free," for instance; it might easily be sung, "Immensss an free" _if_ consonants were disregarded. Instead, Aaron Jackson taught leaving the consonant off till the next word so "s"s don't fizzle out or worse, certain consonants disappear altogether. For example, we would sing "Immense and free," like "Immen san dfree," which may not sound great by itself but sounds great as a choir.
 
