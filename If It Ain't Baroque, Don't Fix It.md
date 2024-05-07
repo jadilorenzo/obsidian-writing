@@ -9,9 +9,7 @@ Aaron Jackson taught music with precision. For instance, he taught the choir to 
 
 Aaron Jackson also taught musical self-evaluation. He would often ask the choir to identify their mistakes like an alto volunteering "I think the altos were a little off-pitch" or a tenor saying "The bass section was too quiet" (because they always were.) One time, the youth choir (about 15 members) was singing on the Sunday after Easter when the tenors came in off-tune which made that song section sound weird. Instead of criticizing the error, Aaron Jackson later said with a smile, "Something went wrong. What do you think it was?" 
 
-The lead tenor, the only youth who could truly sing the tenor part, spoke up and admitted to 
-
-One of the students, incidentally the only tenor who could sing tenor, spoke up, said that he had sung the wrong note, and led the tenor section to do the same.
+The lead tenor, the only youth who could truly sing the tenor part, spoke up and admitted to leading the tenor section to sing the wrong note.
 
 As soon as we analyzed the problem, there was nothing more to discuss. One incredible benefit of these analyses was learning an instinct for music. At the previous church, I had attempted improvised harmonization to common hymns, after my older brother who harmonized beautifully. But now, I could harmonize with any hymn I desired. Aaron Jackson put his life into the quality of his music, and it paid off.
 
