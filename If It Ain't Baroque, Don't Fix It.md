@@ -7,7 +7,7 @@ Aaron Jackson had energy. He blazed through hours and hours of practice with the
 
 Aaron Jackson taught music with precision. For instance, he taught the choir to have "tall" vowels. Choirs often have "flat" vowels and, consequently, a collective southern accent. Such flat vowels might turn "A mighty fortress is our God" into "I my dee fort dress is are God." As Aaron Jackson would remind us, "We're not a country town choir, you know.” 
 
-Tall vowels are created by 
+Tall vowels are created by opening the space near the back of your jaw — similar to a yawn. This space will change 
 
 Tall vowels involve, instead of singing flat vowels like "Aw" as in the sound your doctor tells you to make, singing tall vowels like "Ah" as in the British pronunciation of "Top." 
 
