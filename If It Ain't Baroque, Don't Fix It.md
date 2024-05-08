@@ -25,4 +25,4 @@ Aaron Jackson, Beth Grose, Sue Grey, and Caleb Woods found joy in their work in 
 Changes to make to essay structure:
 
 The intro needs to say that I am focusing on AJ's joy
-It may work to
+It may work to say that I am talking about fulfillment 
