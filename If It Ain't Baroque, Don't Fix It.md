@@ -11,7 +11,7 @@ Aaron Jackson also taught musical self-evaluation. He would often ask the choir 
 
 Aaron Jackson achieved remarkable results. First, he built a talented musical community. Take Karen Bullock for instance: she could take any piece of sheet music she'd never seen before and play it perfectly... immediately. Out of the hours and hours she spent accompanying choir practice and performing, I've only heard her make one mistake. Then there's the Danchi family. All four kids played violin and viola professionally, and two sisters played in the orchestra weekly. Furthermore, so many people were drawn to Aaron Jackson and his music program that there were more than enough people for a full choir and orchestra to perform weekly. Second, Aaron Jackson conducted beautiful concerts. He spent months selecting music for the annual Christmas concert. Sometimes only a month after the Christmas performance, Aaron Jackson would roll out his selection for the next year. But when this performance finally came, it was a big deal. The auditorium which could easily fit 1500 people was packed. Seats were lined against the wall, and they too were filled. I was thankful the youth choir had reserved seating; otherwise, we might have had to stand. Aaron Jackson lived the music when he stood on the conductor's podium. His face took on a heavenly visage and his eyes glowed with inner light. The music was deep, rich, resounding, pure, lovely. On that very stage, it was as if Aaron Jackson wielded the full power of music; music that melted hearts and touched souls. Aaron Jackson's music was heavenly.
 
-Aaron Jackson had an impossible joy.
+Aaron Jackson had an impossible joy while working.
 
 Though I had always been a happy kid
 
