@@ -1,12 +1,4 @@
-We had reached the final song of the "Let There Be Light" Christmas concert for over two thousand people. And for the first few bars, I was the only one singing. 
-Countless hours had been poured into crafting the concert, but no one invested more time than the choir and orchestra director, Aaron Jackson.
-He taught the choir with precision, patience, persistence, and a unique sense of humor. But more than that, Aaron Jackson had joy. 
-If the e
-
-
-Only one thing was lacking in the whole arrangement: Aaron Jackson's face was toward the choir, not the audience. His eyes flowed with an intense joy that electrified the choir. 
-
-If this energy had been condensed into a cup of coffee, it would have wakened a paralytic — "Let There Be Light" indeed.
+We had reached the final song of the "Let There Be Light" Christmas concert for over two thousand people. And for the first few bars, I was the only one singing. Countless hours had been poured into crafting the concert, but no one invested more time than the choir and orchestra director, Aaron Jackson. He led the choir and orchestra with precision, patience, persistence, and an exceptional sense of humor. But more than that, Aaron Jackson had an energetic joy. If this energy had been condensed into a cup of coffee, it would have awakened a paralytic — "Let There Be Light" indeed.
 
 
 *Two thousand people.* For the first few bars of the last song of the "Let There Be Light" Christmas concert, I, Jacob Di Lorenzo, was the only one singing to a crowd of over two thousand people. Countless hours had been poured into crafting the concert, but no one was more essential to the project's success than the choir and orchestra director, Aaron Jackson. Only one thing was lacking in the whole arrangement: Aaron Jackson's face was toward the choir, not the audience. His eyes flowed with an intense joy that electrified the choir. If this energy had been condensed into a cup of coffee, it would have wakened a paralytic — "Let There Be Light" indeed.
