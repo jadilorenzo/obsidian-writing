@@ -1,5 +1,8 @@
 We had reached the final song of the "Let There Be Light" Christmas concert for over two thousand people. And for the first few bars, I was the only one singing. 
 Countless hours had been poured into crafting the concert, but no one invested more time than the choir and orchestra director, Aaron Jackson.
+He taught the choir with precision, patience, persistence, and a unique sense of humor. But more than that, Aaron Jackson had joy. 
+If the e
+
 
 Only one thing was lacking in the whole arrangement: Aaron Jackson's face was toward the choir, not the audience. His eyes flowed with an intense joy that electrified the choir. 
 
