@@ -1,6 +1,7 @@
 We had reached the final song of the "Let There Be Light" Christmas concert for over two thousand people. For the first few bars, I was the only one singing. 
 
 Countless hours had been poured into crafting the concert, but no one invested more time than the choir and orchestra director, Aaron Jackson.
+
 Only one thing was lacking in the whole arrangement: Aaron Jackson's face was toward the choir, not the audience. His eyes flowed with an intense joy that electrified the choir. If this energy had been condensed into a cup of coffee, it would have wakened a paralytic — "Let There Be Light" indeed.
 
 
