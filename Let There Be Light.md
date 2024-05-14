@@ -12,7 +12,7 @@ Aaron Jackson achieved remarkable results. First, he built a talented musical co
 
 But was Aaron Jackson's joy unique in my experience? No. Unlike many homeschool students, I've had the luxury of teachers and mentors who truly loved what they taught. Originally, I believed their joy and fascination were eccentricities without common source. But then I noticed a third linking trait: fascinated people worked their tails off. This seemed impossible; I associated work with that uncomfortable feeling of hurrying or pulling yourself out of bed.
 
-But was Aaron Jackson's joy unique in my experience? No. Unlike many students, I've had the luxury of teachers and mentors who loved what they taught. I thought their fascination 
+But was Aaron Jackson's joy unique in my experience? No. Unlike many students, I've had the luxury of teachers and mentors who loved what they taught. But I thought their fascination and energy were eccentricities acquired at birth.
 
 But what struck me most about Aaron Jackson was his overwhelming joy. I had always been a happy kid; if I was ever disappointed, my ever-ready response was "Maybe tomorrow." But Aaron Jackson was happy because he cared; he dedicated his life to music. But how could someone be working and happy? I had no idea. But then I started noticing others with that same overwhelming joy _and_ a passion for something beautiful.
 
