@@ -14,7 +14,9 @@ But was Aaron Jackson's joy unique in my experience? No. Unlike many homeschool 
 
 But was Aaron Jackson's joy unique in my experience? No. Unlike many students, I've had the luxury of teachers and mentors who loved what they taught. However, I thought their fascination and energy were eccentricities acquired at birth. But I began to notice a third trait common to these passionate people, they worked hard. In fact, they were most energized when working their hardest. This seemed impossible; I associated work with that uncomfortable feeling of pulling yourself out of bed or, worse, hurried pre-party preparations.
 
-But was Aaron Jackson's joy unique in my experience? No. Unlike many students, I've had the luxury of teachers and mentors who loved what they taught. However, I thought their fascination and energy were eccentricities acquired at birth. But I began to notice a third trait common to these passionate people, they worked hard. In fact, they were most energized when working their hardest. Furthermore, I associated work with that uncomfortable feeling of pulling yourself out of bed or, worse, hurried pre-party preparations.
+But was Aaron Jackson's joy unique in my experience? No. Unlike many students, I've had the luxury of teachers and mentors who loved what they taught. However, I thought their fascination and energy were eccentricities acquired at birth. Furthermore, I associated work with that uncomfortable feeling of dragging yourself out of bed or, worse, being forced to hurry. 
+
+But I began to notice a third trait common to these passionate people, they worked hard. In fact, they were most energized when working their hardest. 
 
 But what struck me most about Aaron Jackson was his overwhelming joy. I had always been a happy kid; if I was ever disappointed, my ever-ready response was "Maybe tomorrow." But Aaron Jackson was happy because he cared; he dedicated his life to music. But how could someone be working and happy? I had no idea. But then I started noticing others with that same overwhelming joy _and_ a passion for something beautiful.
 
