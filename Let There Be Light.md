@@ -19,6 +19,12 @@ But then I began to discover that the people I admire the most find joy in worki
 Working on something you find fascinating brings you joy.
 People find joy in work that fascinates them.
 These people were energized by hard work that they loved.
+
+But was Aaron Jackson's joy unique in my experience? No. 
+Unlike many homeschool students, nearly all my teachers have been interesting and ener
+For a long time, I assumed
+But then I discovered
+
 But I began to notice a third trait common to these passionate people, they worked hard. In fact, they were most energized when working their hardest. 
 
 But what struck me most about Aaron Jackson was his overwhelming joy. I had always been a happy kid; if I was ever disappointed, my ever-ready response was "Maybe tomorrow." But Aaron Jackson was happy because he cared; he dedicated his life to music. But how could someone be working and happy? I had no idea. But then I started noticing others with that same overwhelming joy _and_ a passion for something beautiful.
