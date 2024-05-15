@@ -17,7 +17,8 @@ But was Aaron Jackson's joy unique in my experience? No. Unlike many students, I
 But was Aaron Jackson's joy unique in my experience? No. Unlike many students, I've had the luxury of teachers and mentors who loved what they taught. However, I thought their fascination and energy were eccentricities acquired at birth. Furthermore, I associated all work with that uncomfortable feeling of dragging yourself out of bed. 
 But then I began to discover that the people I admire the most find joy in working on something they are fascinated by.
 Working on something you find fascinating brings you joy.
-
+People find joy in work that fascinates them.
+These people were energized by hard work that they loved.
 But I began to notice a third trait common to these passionate people, they worked hard. In fact, they were most energized when working their hardest. 
 
 But what struck me most about Aaron Jackson was his overwhelming joy. I had always been a happy kid; if I was ever disappointed, my ever-ready response was "Maybe tomorrow." But Aaron Jackson was happy because he cared; he dedicated his life to music. But how could someone be working and happy? I had no idea. But then I started noticing others with that same overwhelming joy _and_ a passion for something beautiful.
