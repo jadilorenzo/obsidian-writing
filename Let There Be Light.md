@@ -32,8 +32,8 @@ These people aren't temporary interns either; the Academy is designed to integra
 at the weekly, company-wide meeting where both offices gather in person for a meal, Mr. Woods encourages any employee to present on any relevant areas of interest such as Mark Kraemer's presentation on "The Science of Motivation."
 
 
-Mr. Woods selects Academy applicants to create a unified company culture. (I was blown away by this year's applicants who presented their education and backgrounds in an interesting way over zoom. My whole introduction to the company was: "I'm Jacob, and Christian's been teaching me how to code.")
-Mr. Woods personally trains these applicants in programming best practices and works through logical and technical challenges with them. (spent over an hour helping me fix my TCP sockets)
+Mr. Woods carefully selects Academy applicants to create a unified company culture. For example, I was blown away by this year's applicants who, over Zoom, presented their education and backgrounds in a truly compelling way. To compare, my whole introduction to the company was: "I'm Jacob, and Christian (my older brother who worked at the company) has been teaching me how to code." Furthermore, Mr. Woods personally trains these applicants in programming best practices and works through logical and technical challenges with them. When I was doing the Academy, Mr. Woods spent over an hour helping me fix an issue with my TCP sockets, and did the same for the other Academy participants.
+
 Mr. Woods runs a weekly chow and powwow where people are encouraged to: discuss interesting problems they've solved (like "The Case of the Uncreated Index"), explain something they've been learning about (like "The Science of Motivation"), and even propose tooling changes (like Ben Einwecter's proposal to switch to the "Linear" project management system.)
 Mr. Woods hosts yearly retreats where the main events are self-improvement and group games like frisbee.
 But most impressive, after giving a lecture on leadership, Mr. Woods asked the entire company for feedback on he could lead better. What's more, he wanted to hear what he could do better from anyone at any time.
