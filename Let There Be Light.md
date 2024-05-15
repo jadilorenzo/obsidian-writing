@@ -31,6 +31,11 @@ any employee to present on any of their interests that might be relevant to the 
 These people aren't temporary interns either; the Academy is designed to integrate these students into the RoleModel community. And if they succeed, they can become a "RoleModel Craftsman" in eight to ten years. Additionally, Mr. Woods encourages 
 at the weekly, company-wide meeting where both offices gather in person for a meal, Mr. Woods encourages any employee to present on any relevant areas of interest such as Mark Kraemer's presentation on "The Science of Motivation."
 
+
+Mr. Woods selects Academy applicants to create a unified company culture. (I was blown away by this year's applicants who presented their education and backgrounds in an interesting and )
+Mr. Woods personally trains these applicants in programming best practices and works through logical and technical challenges with them. (spent over an hour helping me fix my TCP sockets)
+Mr. Woods
+
 Aaron Jackson, Beth Grose, Sue Grey, and Caleb Woods found joy in their work in unique ways: Aaron Jackson lived his music; Beth Grose could talk about science for hours; Sue Gray loved building strong arguments and strong students; and Caleb Woods took time to train the new academites in the RoleModel Way. Regardless of how they did it, they found something good, true, and beautiful and pursued it with vigor. In the end, the overwhelming energy, fulfillment, and joy they found outweighed their initial effort and work. Furthermore, it overflowed into the people around them, creating communities of people with shared passion. I've always wanted to avoid work and live the "easy life." But the easy life isn't one filled with people or passion or joy. But now, instead of avoiding work, I'm searching for a work filled with goodness, truth, and beauty. I want to work with a passion that will overflow into the people around me. Let there be light indeed.
 
 <div style='display:none'>
