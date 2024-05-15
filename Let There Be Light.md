@@ -23,7 +23,7 @@ These people were energized by hard work that they loved.
 But was Aaron Jackson's joy unique in my experience? No. 
 Unlike many homeschool students, nearly all my teachers and mentors have been interesting and energetic.
 For a long time, I assumed these traits were dual eccentricities.
-But then I discovered these people were the same in one key way: they were energized by hard work that they loved.
+But then I discovered that these people were the same in one vital way: they were energized by hard work that they loved.
  
 
 But I began to notice a third trait common to these passionate people, they worked hard. In fact, they were most energized when working their hardest. 
