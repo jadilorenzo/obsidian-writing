@@ -14,7 +14,9 @@ But was Aaron Jackson's joy unique in my experience? No. Unlike many homeschool 
 
 But was Aaron Jackson's joy unique in my experience? No. Unlike many students, I've had the luxury of teachers and mentors who loved what they taught. However, I thought their fascination and energy were eccentricities acquired at birth. But I began to notice a third trait common to these passionate people, they worked hard. In fact, they were most energized when working their hardest. This seemed impossible; I associated work with that uncomfortable feeling of pulling yourself out of bed or, worse, hurried pre-party preparations.
 
-But was Aaron Jackson's joy unique in my experience? No. Unlike many students, I've had the luxury of teachers and mentors who loved what they taught. However, I thought their fascination and energy were eccentricities acquired at birth. Furthermore, I associated work with that uncomfortable feeling of dragging yourself out of bed or, worse, being forced to hurry. 
+But was Aaron Jackson's joy unique in my experience? No. Unlike many students, I've had the luxury of teachers and mentors who loved what they taught. However, I thought their fascination and energy were eccentricities acquired at birth. Furthermore, I associated all work with that uncomfortable feeling of dragging yourself out of bed. 
+But then I began to discover that the people I admire the most find joy in working on something they are fascinated by.
+Working on something you find fascinating brings you joy.
 
 But I began to notice a third trait common to these passionate people, they worked hard. In fact, they were most energized when working their hardest. 
 
