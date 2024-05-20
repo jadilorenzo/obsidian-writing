@@ -26,7 +26,7 @@ Caleb Woods is passionate about growing RoleModel Software into a thriving compa
 %% What is the academy? %%
 
 Caleb Woods, CEO of RoleModel Software, loves his company. 
-Caleb Woods loves RoleModel Software. E
+Caleb Woods loves RoleModel Software. Every year, Mr. Woods selects 
 
 Aaron Jackson, Beth Grose, Sue Grey, and Caleb Woods found joy in their work in unique ways: Aaron Jackson lived his music; Beth Grose could talk about science for hours; Sue Gray loved building strong arguments and strong students; and Caleb Woods took time to train the new academites in the RoleModel Way. Regardless of how they did it, they found something good, true, and beautiful and pursued it with vigor. In the end, the overwhelming energy, fulfillment, and joy they found outweighed their initial effort and work. Furthermore, it overflowed into the people around them, creating communities of people with shared passion. I've always wanted to avoid work and live the "easy life." But the easy life isn't one filled with people or passion or joy. But now, instead of avoiding work, I'm searching for a work filled with goodness, truth, and beauty. I want to work with a passion that will overflow into the people around me. Let there be light indeed.
 
