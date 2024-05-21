@@ -26,7 +26,10 @@ Caleb Woods is passionate about growing RoleModel Software into a thriving compa
 %% What is the academy? %%
 
 Caleb Woods, CEO of RoleModel Software, loves his company. 
-Caleb Woods loves RoleModel Software. Every year, Mr. Woods carefully selects applicants for the RoleModel Academy. The Academy is designed to grow novice college graduates into "Senior Craftsman" in about eight to ten years. The Academy is not a typical programming class; it is designed to teach the "RoleModel Way" of programming, where .
+Caleb Woods loves RoleModel Software. Every year, Mr. Woods carefully selects applicants for the RoleModel Academy. The Academy is designed to grow novice college graduates into "Senior Craftsman" in about eight to ten years by giving them. 
+
+
+The Academy is not a typical programming class but is designed to teach the "RoleModel Way" of programming, where students get to learn.
 
 The Academy is designed to put novice college graduates on the track to become "Senior Craftsman" in eight to ten years.
 
