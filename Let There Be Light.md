@@ -33,7 +33,7 @@ The Academy is designed to put novice college graduates on the track to become "
 
 %% good programming habits %%
 
-Caleb Woods is passionate about growing RoleModel Software into a thriving company. Every year, Mr. Woods carefully selects applicants for the "RoleModel Academy," our apprenticeship program.
+Caleb Woods is passionate about growing RoleModel Software into a thriving company. Every year, Mr. Woods carefully selects applicants for the "RoleModel Academy," our apprenticeship program. Although techies and programmers are renown for their poor communication skills,  This year, Mr. Woods chose 
 
 
 
