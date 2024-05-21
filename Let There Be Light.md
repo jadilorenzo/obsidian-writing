@@ -33,8 +33,7 @@ The Academy is designed to put novice college graduates on the track to become "
 
 %% good programming habits %%
 
-Caleb Woods is passionate about growing RoleModel Software into a thriving company. Every year, Mr. Woods carefully selects applicants for the " Academy," RoleModel's apprenticeship program. Although techies and programmers are known for their poor communication skills,  this year, Mr. Woods chose three academy students who presented their education and backgrounds over Zoom with ease and clarity — one even had the whole company laughing. However, the Academy isn't a regular programming course; it's designed to drill new programmers in effective programming habits, setting them on track to become "Software Craftsmen" in about eight to ten years. In fact, Mr. Woods personally leads daily code reviews for the first week or so of the Academy.
-Mr. Woods reviews Academy students' code on a daily basis
+Caleb Woods is passionate about growing RoleModel Software into a thriving company. Every year, Mr. Woods carefully selects applicants for the "Academy," RoleModel's apprenticeship program. Although techies and programmers are known for their poor communication skills,  this year, Mr. Woods chose three academy students who presented their education and backgrounds over Zoom with ease and clarity — one even had the whole company laughing. However, the Academy isn't a regular programming course; it's designed to drill new programmers in effective programming habits, setting them on track to become "Software Craftsmen" in about eight to ten years. In fact, Mr. Woods daily reviews the Academy students' code for the first week or so of the Academy. Any code that didn't have a correspondin
 
 
 
