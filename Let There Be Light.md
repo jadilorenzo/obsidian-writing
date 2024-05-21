@@ -38,7 +38,7 @@ CEO Caleb Woods is passionate about growing RoleModel Software into a thriving c
 	- Sun burn
 	- Getting more consistent with golf shots
 	- Why every time I hit a great shot yesterday, @Jamie Meeker (an employee) hit one just slightly better
-Beyond this, Mr. Woods caters a meal at our weekly meeting, where people present what they're working on, things they've been learning about, or even propose tooling changes. No-one wants to miss these discussions. In fact, this weekly meeting usually starts with a weekly checkin where
+Beyond this, Mr. Woods caters a meal at our weekly meeting, where people present what they're working on, things they've been learning about, or even propose tooling changes. No-one wants to miss these discussions. In fact, this weekly meeting usually starts with a weekly check-in where a rotation of employees are asked a series of questions
 
 %% other academy people, what is craft, rm academy, diverse skillset %%
 
