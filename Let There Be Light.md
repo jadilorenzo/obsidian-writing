@@ -30,3 +30,5 @@ Aaron Jackson, Beth Grose, Sue Grey, and Caleb Woods found joy in their work in 
 
 personal energy and charisma
 affected my own life
+
+Aaron Jackson, Beth Grose, Sue Grey, and Caleb Woods love their work. Aaron Jackson rolled around on the floor to make his poi
