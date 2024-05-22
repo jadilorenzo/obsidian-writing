@@ -30,4 +30,4 @@ Aaron Jackson, Beth Grose, Sue Grey, and Caleb Woods found joy in their work in 
 
 %% Dr. Jackson %%
 
-Aaron Jackson, Beth Grose, Sue Grey, and Caleb Woods love their work. Aaron Jackson rolled around on the floor to make his point to the youth choir. Beth Gross interrupted important study time to answer my curious questions. Sue Grey volunteered twenty years of her life to mock trial coaching. Caleb Woods takes time out his busy schedule to review Academy students' work. But whether these p
+Aaron Jackson, Beth Grose, Sue Grey, and Caleb Woods love their work: Aaron Jackson rolled around on the floor to make his point to the youth choir; Beth Gross interrupted important study time to answer my curious questions; Sue Grey volunteered twenty years of her life to mock trial coaching; and Caleb Woods takes time out his busy schedule to review Academy students' work. But whether these people intended it or not, they created communities of shared passion because they attract people to the work they love. Before taking Mrs. Grose's chemistry class, I never realized the beautiful balance of chemistry.
