@@ -1,6 +1,8 @@
 We had reached the final song of the "Let There Be Light" Christmas concert, and I sang the opening solo to a crowd of over two thousand people.
 
-I sang the opening solo of the final song of the "Let There Be Light" Christmas concert
+I sang the opening solo of the final song of the "Let There Be Light" Christmas concert to a crowd of over two thousand people.
+
+To a crowd of over two thousand people, I sang the opening solo of the final song of the "Let There Be Light" Christmas concert to a crowd of over two thousand people.
 
 Countless hours had been poured into crafting the concert, but no one invested more time and effort than the choir and orchestra director, Aaron Jackson. He led the choir and orchestra with precision, patience, persistence, and an exceptional sense of humor. What's more, Aaron Jackson brought an energetic joy that electrified the choir. If this energy had been condensed into a cup of coffee, it would have wakened a paralytic — "Let There Be Light" indeed.
 
