@@ -16,6 +16,8 @@ Aaron Jackson had a strong sense of humor. For example, he began the Campbell Un
 
 Aaron Jackson had energy. Every Wednesday and Sunday, he blazed through hours and hours of practice with the adult choir, the youth choir, the chamber choir, and the orchestra. Sometimes he would be so excited about a musical piece he would ask the choir to repeat it out of sheer joy. In fact, he made the choir repeat the Hallelujah Chorus perfectly three consecutive times. When conducting, Aaron Jackson's entire body would take on the song's rhythm and timbre: he would bounce up and down on the conductor's stand, his right arm would meter the time signature, and his face adopted the expression of the music. 
 
+and the expression of the music animated his every feature.
+
 his face was animated by the tone of the music.
 his face would expressed the arrangements tone.
 his face would express the songs emotion.
