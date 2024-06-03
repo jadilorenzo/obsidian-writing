@@ -1,17 +1,5 @@
 I sang the opening solo of the final song of the "Let There Be Light" Christmas concert to a crowd of over two thousand people. Countless hours had been poured into crafting the concert, but no one invested more time and effort than Dr. Aaron Jackson who lead the choir and orchestra with precision, patience, persistence, and an exceptional sense of humor. Aaron Jackson's enthusiasm electrified the choir. If this energy had been condensed into a cup of coffee, it would have wakened a paralytic — "Let There Be Light" indeed.
 
-What I could call AJ's energetic joy:
-	Rocket fuel
-	abundant energy
-	passion
-	Energy
-	joy
-	fuel
-	fire (I like it — though may be cliché)
-	zest (except it wasn't added it was imbedded)
-	electric enthusiasm
-	enthusiasm
-
 Aaron Jackson had a strong sense of humor. For example, he began the Campbell University joint choir practice with one of his favorite one-liners: "If it ain't Baroque, don't fix it.” During one Wednesday night practice, our youth choir was singing the word "Hallelujah" when, to Aaron Jackson's dismay, we sang the end of the word "Hallelu - yuh" like the word "yummy." He instructed us to sing it like "Hallelu - yaw" like a German saying "Yah, man" or, even better, like my new nick-name: "Yah - cob" ("Jacob" with a twist.) But Aaron Jackson also expressed humor through his facial expressions and the brightness of his eyes — like how he described the choir's proper expression: "From your nose down, your face should look like an opera singer; from your nose up, your should have the excitement of a first-grade teacher." Even when a choir member was difficult, his eyes shone — sometimes even brighter. One Wednesday, when the youth choir warbled hideously out of tune, Aaron Jackson flung his music binder aside, flopped to the ground, and rolled around on the white, speckled linoleum floor — exclaiming, "Oh my stars..." in agony from hearing the painful disharmony.
 
 Aaron Jackson had energy. Every Wednesday and Sunday, he blazed through hours and hours of practice with the adult choir, the youth choir, the chamber choir, and the orchestra. Sometimes he would be so excited about a musical piece he would ask the choir to repeat it out of sheer joy. In fact, he made the choir repeat the Hallelujah Chorus perfectly three consecutive times. When conducting, Aaron Jackson's entire body would take on the song's rhythm and timbre: he would bounce up and down on the conductor's stand, his right arm would meter the time signature, and the expression of the music animated his every feature. For example, if an arrangement was bold and resounding, Dr. Jackson assumed wide and sweeping gestures and wore an expression of intense valor. Aaron Jackson was where he wanted to be.
