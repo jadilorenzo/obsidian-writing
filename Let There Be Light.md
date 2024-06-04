@@ -25,7 +25,7 @@ Furthermore, employees get to know each other over our weekly meeting where Mr. 
 
 CEO Caleb Woods is passionate about developing RoleModel's software, business, employees, and community. Shortly after being 
 Within a short period of time,
-Within a few years of being hired, RoleModel's founder 
+Within a few years of being hired, RoleModel's founder saw such leadership and listening skills that he chose Mr. Woods to become CEO after him.
 
 technically
 communally?
