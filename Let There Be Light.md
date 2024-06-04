@@ -25,7 +25,9 @@ Furthermore, employees get to know each other over our weekly meeting where Mr. 
 
 Caleb Woods is passionate about developing his company's software, business, employees, and community. Within a few years of being hired, the founder of RoleModel Software chose Mr. Woods to become CEO after him because of Mr. Wood's incredible leadership, humility, vision, and technical skills. 
 For example, Mr. Woods personally assess "RoleModel Academy" applicants' technical and interpersonal skills.
-For instance, although programmers are known for their poor communication skills, this year's Academy cohort presented their educations and backgrounds to the company with ease and clarity — one even had the whole company laughing. 
+For instance, 
+
+As for interpersonal skills, although programmers are known for their poor communication, this year's Academy cohort presented their educations and backgrounds to the company with ease and clarity — one even had the whole company laughing. 
 For the first few weeks 
 
 and later trains them in the "RoleModel Way" (best practices) of programming for the first several weeks of the Academy — and he does a great job. 
