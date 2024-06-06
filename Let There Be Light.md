@@ -36,7 +36,11 @@ Furthermore, Mr. Woods personally teaches the Academy, leading daily code review
 
 Mr. Woods values communication. He personally interviews job applicants, looking for communicators. For example, 
 
-But Mr. Woods values interpersonal skills too, perhaps more than technical ability. In fact, Mr. Woods' interview process thoroughly tests applicant's ability to explain their thoughts with minimal reference to basic programing knowledge. In fact, this year's Academy includes a student with a background in musical theater with no programming experience beyond a few recommended tutorials. Furthermore, developers are expected to give presentations during meetings with customers, a key step in becoming a Craftsman.
+But Mr. Woods values interpersonal skills too — perhaps more than technical ability. In fact, Mr. Woods' interview process thoroughly tests applicant's ability to explain their thoughts with minimal reference to basic programing knowledge. 
+
+In fact, this year's Academy includes a student with a background in musical theater with no programming experience beyond a few recommended tutorials. 
+
+Furthermore, developers are expected to give presentations during meetings with customers, a key step in becoming a Craftsman.
 
 In fact, one of this year's academy students has a background in muiscal theater with no programming experience beyond 
 
