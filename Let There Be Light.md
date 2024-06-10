@@ -38,7 +38,7 @@ Mr. Woods personally interviews Academy applicants, looking for communications s
 
 But Mr. Woods values interpersonal skills too — perhaps more than technical ability. 
 He personally interviews Academy applicants, looking for good communicators, often barely referencing basic programing knowledge. 
-The Academy process also gives students practice collaborating on a problem and presenting  to the company. In fact, even before they start, Academy students present their education and background to the whole company. This year an applicant with a background in musical theater introduced himself so effectively he had the whole company laughing.
+The Academy process also gives students practice collaborating on a problem and presenting  to the company. In fact, even before they start, Academy students present their education and background to the whole company. This year one applicant (with a background in musical theater) introduced himself so effectively he had the whole company laughing.
 
 Mr. Woods' interview process tests applicant's ability to explain their thoughts with minimal reference to basic programing knowledge. 
 Mr. Woods rigorously trains Academy students communication skills.
