@@ -35,7 +35,7 @@ For instance, the "RoleModel Academy," designed to place novice programmers on a
 
 
 If a student attends the Academy's daily code review, which Mr. Woods often leads, with an untested feature, their new code is immediately and irrevocably deleted.
-If a student attends the Academy's daily code review, often lead by Mr. Woods, with an untested feature, their new code is immediately and irrevocably deleted.
+If a student attends the Academy's daily code review (often lead by Mr. Woods) with an untested feature, their new code is immediately and irrevocably deleted, and they must start over.
 
 During the Academy's daily checkin, which Mr. Woods often leads, Academy students' code is reviewed, and if a student attends with an untested feature, their new code is immediately and irrevocably deleted.
 
