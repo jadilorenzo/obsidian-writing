@@ -34,8 +34,10 @@ Mr. Woods has high technical standards.
 For instance, the "RoleModel Academy," designed to place novice programmers on a clear path to become senior developers in eight to ten years, also allows RoleModel to rigorously train its own talent in the foundational principles of programming.  
 For example, if a student attends the Academy's daily code review (often lead by Mr. Woods) with an untested feature, their new code is immediately and irrevocably deleted, and they must start over.
 
-Mr. Woods personally interviews Academy applicants
+Mr. Woods personally interviews Academy applicants, looking for communications skills with minimal reference to basic programing knowledge. 
+
 But Mr. Woods values interpersonal skills too — perhaps more than technical ability. 
+He personally interviews Academy applicants, looking for communications skills with minimal reference to basic programing knowledge. 
 Mr. Woods rigorously trains Academy students communication skills.
 Mr. Woods' interview process tests applicant's ability to explain their thoughts with minimal reference to basic programing knowledge. 
 In fact, 
