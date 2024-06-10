@@ -33,7 +33,11 @@ Caleb Woods loves developing software, leading by example, and building the Role
 Mr. Woods has high technical standards. 
 For instance, the "RoleModel Academy," designed to place novice programmers on a clear path to become senior developers in eight to ten years, also allows RoleModel to train its own talent in the foundational principles of programming. 
 
-During the Academy's daily checkin, which Mr. Woods often leads for the first weeks, Academy student's code is reviewed, and if a student attends with an untested feature, their new code is immediately and irrevocably deleted, and they are forced to restart. 
+
+If a student attends the Academy's daily code review, which Mr. Woods often leads, with an untested feature, their new code is immediately and irrevocably deleted.
+If a student attends the Academy's daily code review, often lead by Mr. Woods, with an untested feature, their new code is immediately and irrevocably deleted.
+
+During the Academy's daily checkin, which Mr. Woods often leads, Academy students' code is reviewed, and if a student attends with an untested feature, their new code is immediately and irrevocably deleted.
 
 Furthermore, Mr. Woods teaches the Academy and leads daily code reviews for the first few weeks. And if a student attends a check-in meeting with untested code, their new feature is immediately and irrevocably deleted, and they are forced to restart. 
 But Mr. Woods values interpersonal skills too — perhaps more than technical ability. 
