@@ -31,8 +31,8 @@ Caleb Woods loves developing his company's software, business, employees, and co
 Caleb Woods loves developing software, leading by example, and building the RoleModel community. Within a few years of being hired as a developer at RoleModel Software, the company founder recognized Mr. Wood's potential and began mentoring him in all aspects of the business, hoping he would someday help him lead the company. A few years later, Mr. Woods purchased the company from it's founder.
 
 Mr. Woods has high technical standards. 
-For instance, the "RoleModel Academy," designed to place novice programmers on a clear path to become senior developers in eight to ten years, also allows RoleModel to train its own talent in the foundational principles of programming.  
-If a student attends the Academy's daily code review (often lead by Mr. Woods) with an untested feature, their new code is immediately and irrevocably deleted, and they must start over.
+For instance, the "RoleModel Academy," designed to place novice programmers on a clear path to become senior developers in eight to ten years, also allows RoleModel to rigorously train its own talent in the foundational principles of programming.  
+For example, if a student attends the Academy's daily code review (often lead by Mr. Woods) with an untested feature, their new code is immediately and irrevocably deleted, and they must start over.
 
 But Mr. Woods values interpersonal skills too — perhaps more than technical ability. 
 Mr. Woods rigorously trains Academy students communication skills.
