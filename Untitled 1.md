@@ -1,1 +1,1 @@
-Alan had been in the "party room" many times. *As if anyone could have a "party" these days.* He knew 
+Alan had been in the "party room" many times. *As if anyone could have a "party" these days.* He knew the governor's daughter was there. The real question was where. Disguised? Definitely. She was planning on meeting someone, likely one of the many soldiers from the indifferent territories. *Pretending to be from Crassus in all likelihood.* "Analyze "
