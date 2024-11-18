@@ -1,0 +1,1 @@
+Alan had been in the "party room" many times. *As if anyone could have a "party" these days.* He knew 
